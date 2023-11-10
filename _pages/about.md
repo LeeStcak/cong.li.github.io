@@ -14,7 +14,7 @@ I am a highly motivated student and seeking challenges research opportunities in
 
 You can find my CV here: [Cong's Curriculum Vitae](../assets/Curriculum_Vitae.pdf).
 
-[Email](cong.li2@studio.unibo.it)  
+[Email](cong.li2@studio.unibo.it)/ [Github](https://github.com/LeeStcak)  
 ————————————————
 
 
